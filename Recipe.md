@@ -1,0 +1,1 @@
+Take some water and add lime water to it. Once this done add 2 teaspoon sugar and 1 teaspoon salt. Then stear it well. If you need then yo can add ice to it.
